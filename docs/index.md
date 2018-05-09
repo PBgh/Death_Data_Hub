@@ -1,3 +1,1 @@
-This is the landing page.
-
-Someone should write something here....
+Data about the dead can help the living. Demands for mortality data keep increasing and our ability to meet this demand will depend on strategic enhancements in technology accompanied with new ways of working together. 
